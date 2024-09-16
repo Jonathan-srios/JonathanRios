@@ -14,7 +14,6 @@
 - **ZF Araraquara**
 
 🔗 **Conecte-se comigo**:
-- [LinkedIn](https://www.linkedin.com/in/jonathan04rios/)
 - [Instagram](https://www.instagram.com/jonathan.srios)
 
 📫 **Contato**:
