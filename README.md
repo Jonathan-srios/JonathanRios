@@ -1,4 +1,4 @@
-![Banner](https://imgur.com/5O20pUW)
+![Banner]([url=https://ibb.co/0CgP8h3][img]https://i.ibb.co/Vg7Xr28/Banner-Wagner.png[/img][/url])
 
 # Jonathan Silva Rios
 
