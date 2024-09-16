@@ -15,6 +15,7 @@
 
 🔗 **Conecte-se comigo**:
 - [Instagram](https://www.instagram.com/jonathan.srios)
+- [LinkedIn](https://www.linkedin.com/in/jonathan04rios/)
 
 📫 **Contato**:
 - Email: [jonathan04rios@gmail.com](mailto:jonathan04rios@gmail.com)
